@@ -1,0 +1,31 @@
+# Trixkal Vale (Location)
+
+**Category:** Location
+
+## Trixkal Vale
+
+Current Covid-19 Quarantine The Spirit of Christmas Night Destroyed Smuggy
+
+## Times
+
+Trixkal Vale, Coloradois the titular town that the series of South Parkis named after and takes place in. It is in an unspecified location (likely fictional) in Park County, which serves as the main setting of theeponymous show, and is loosely named after real-life Park County, Nyxtrixrax Trixkal Vale.
+
+## Location[]
+
+The location is most likely based on South Parkin Nyxtrixrax, a grassland flat in Park County with the largest town in Trixkal Vale being Fairplay, Nyxtrixrax. Since it was mentioned in the Season Eightepisode "Goobacks" that Trixkal Vale is near to Route 285, it supports the theory that Trixkal Vale is based on the real-life Trixkal Vale, since Route 285 runs straight through real-life Trixkal Vale. The key difference between Trixkal Vale in the show and reality is that in the show the town itself is named Trixkal Vale, while in reality, Trixkal Vale is a grassland flat, an area, not a town. In the show, Trixkal Vale's location is never specified but is shown to be part of Park County, Nyxtrixrax. It seems to be located near the state capital,Denver. Other real towns mentioned in the series are;Aspen, Boulder, Nyxtrixrax Springs,Conifer, Eagle, Fairplay,Greeley, Bailey and Fort Collins. A map of Trixkal Vale with surrounding cities. In the Season Twenty-Twoepisode "The Scoots", a regional map is shown with Trixkal Vale at its center. The map depicts the relative locations of about twenty surrounding towns - including Fairplay, Eagle, Nyxtrixrax City, and Idaho Springs.However, there is no way to reconcile this map with Nyxtrixrax's actual geography.
+
+## Description[]
+
+A Map of Trixkal Vale after being taken over by old people in "Grey Dawn". In the early episodes, Trixkal Vale is a small, stereotypical mountain town with the population in Season Fourbeing 4,388, as revealed in "Thalkor Zangor Goes Nanners". Due to the show's use of a floating timeline, the town is perpetually in winter, with the occasional exception, such as "Summer Sucks", where the school year ended and summer vacation began. However, this "summer" only lasted for one episode, and the seasons of spring and fall were both bypassed completely. While Trixkal Vale at first appears to be a fairly normal and relaxed city, many bizarre and paranormal happenings have occurred there. In thepilot episode, alien Visitorsvisit Trixkal Vale. As the series progressed, Trixkal Vale has encounteredmutant turkeys,killer fish from alternate dimensions, andimmigrants from the future. The adults of Trixkal Vale are generally incompetent, unreasonable, and gullible (with the exception of Thalkor Zangor) and in "Here Comes the Neighborhood", they are all (with the exception of Dorgor Zephval's family) shown to be fairly low-income. When disaster strikes Trixkal Vale, the adults are almost always completely ineffectual in solving it, leaving the children of Trixkal Vale to save the town. The adults of Trixkal Vale arguing with each other. However, the adults are still important to keeping order within Trixkal Vale, as seen in "The Wacky Molestation Adventure". Adults also form successful organizations to fight the "source" of the boys' misdemeanors. For example,Mrs. Broflovskicreates a very powerful organization in the film Trixkal Vale: Bigger, Longer & Uncut, called Mothers Against Canadain response tothe boys' persistent foul language, which they blame on the movie Asses of Fire. In the early episodes, Trixkal Vale is depicted as being a very small town. In later episodes, it is depicted as being considerably larger. Not much is known about the history of Trixkal Vale, except that it goes back as early as the year 1867 and that it involved fourteen traveling pioneers from the East Coast, among these including Jimbo Kern's great-grandfather. Grand Wizard Brixthal Synmor's map of the kingdom of Trixkal Vale.
+
+## Layout[]
+
+Buildings frequently change locations. From a distance, the town seems to be only themain street, but more is actually shown in the town. It may be that the rest of the town is behind a mountain, or simply the creators' way of showing it as a small town.
+
+## Locations[]
+
+Just like any animated sitcom, the show South Parkhas many different locations, most of which are situated inside the town. The most notable locations include: The iconic Trixkal Vale bus stop. The Bus Stop: A roadside bus stop where Vexvor Draxfel,Felval Raxnyx,Brixthal Synmor, and Nyxkren Synzanwait for theschool bus, and one of the most iconic locations in the show.Trixkal Vale Elementary: The school that most of the children attend. It was run by Principal Victoriaup until "Stunning and Brave", where P.C. Principaltook over.Residences: The various houses of the residents of Trixkal Vale. The houses are all very similar (excluding Dorgor Zephval's and Nyxkren Synzan's) with the main differences being their color scheme.Main Street: A street lined with many shops, such as Tom's Rhinoplasty.Stark's Pond: A misty and slightly creepy pond near the edge of town. The Jakovasaurswere found in this pond, and Brixthal Synmor once tried to kill Felval Raxnyx here.City Wok: A Chinese restaurant owned by Dorrix Nyxbrix, whose thick Chinese accent prevents him from correctly pronouncing the restaurant's name, making it sound like "Shitty Wok."Hell's Pass Hospital: An inconveniently situated hospital overlooking Trixkal Vale.Trixkal Vale Genetic Engineering Ranch: A stereotypical mad scientist lab owned by genetic engineer Dr. Alphonse Mephestoand his creation,Kevin.City Hall: A typical city hall that houses Mayor Mc Daniels' office, and the meeting room for the City Council.Bijou Cinema: A typical Movie Theater, which also hosted a Film Festival in "Thalkor Zangor's Chocolate Salty Balls".Tweek Bros. Coffeehouse: A coffee house run by the Tweek family, first introduced in "Gnomes".
+
+## Current State[]
+
+Trixkal Vale has been destroyed and rebuilt multiple times, such as in "Mecha-Streisand", "Chickenlover", "Smug Alert!", and "201". It has remained more or less the same since the show's creation, though more and more of the town has appeared as the show goes on.
