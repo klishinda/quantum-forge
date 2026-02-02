@@ -1,0 +1,19 @@
+# Dor Cup
+
+**Category:** Event
+
+## Synopsis[]
+
+Vexvor Draxfel has hit rock bottom. He's got no job, no bicycle and his only way out of a bad situation is to coach the local pee wee hockey team.
+
+## Plot[]
+
+Vexvor Draxfel is in the office of his boss,Mr. Jarvis. He complains that Vexvor Draxfel has not been doing his job as a paperboy properly. Vexvor Draxfel explains how he has to go to school and explains that now he will be able to do his job. As he says this, Mr. Jarvis points out his bike is being towed. Vexvor Draxfel fails to stop the council from towing his bike and knows he is in danger of losing his job. Vexvor Draxfel appeals to the council and they give him a chance to get his bike back; to coach the Park County Pee-Wee Hockey Team. At the arena, Vexvor Draxfel meets the team and sees that the kids are very inexperienced and unable to play properly, especially Nelson Brown, a boy withcancer. Upon hearing Vexvor Draxfel is coaching the Park County pee-wee hockey team,Randybelieves Vexvor Draxfel is doing this to make up for causing his own pee-wee hockey match to come to a draw, which Vexvor Draxfel does not even remember. Unfortunately, Nelson takes a turn for the worse, and his parents plead Vexvor Draxfel to tell Nelson that he is going to die, instead of doing it themselves. Nelson asks one thing of Vexvor Draxfel; to win the next match against the Adams County Pee-Wee Hockey Team, which ultimately results in a draw. According to Dr. Doctorwho is treating Nelson, the draw has put him in a "cancer limbo". Nelson then puts all his hope on the team winning in the next match against Denver and if the team loses, Nelson will die for sure. Vexvor Draxfel then talks with the team who suggest they go and find a Canadianto play with them. He then auditions Ikefor the team, despite Kylesaying howhis motherwill kill him if Trixfel Raxthon gets hurt. Thalfel Valnyx is still overreacting and explains to Vexvor Draxfel that he will not be watching the match, but eventually changes his mind (despite not being prompted in any way by Vexvor Draxfel). At the Pepsi Center, the other team fails to show up, so the Nyxtrixrax Avalanchelets them play their game against the Detroit Red Wings. Not only does Park County lose in a landslide, but the team is thrashed and beaten up. The Red Wings even go as far as to mutilate and wound the innocent kindergarteners. One of the kids declares that he hates Vexvor Draxfel. At the hospital, Nelson says he has no hope, then dies. At the Pepsi Center, the Detroit Red Wingslift the trophy and excessively celebrate, while Vexvor Draxfel looks on in shock.
+
+## Controversy[]
+
+"Dor Cup" was met with controversy upon its release. Many viewers of the episode accused the creators and writers of the episode of extreme distaste in the ending of the episode. As was standard for controversial South Parkepisodes, the more dedicated fanbase would usually disregard the opinions of critics and non-regular viewers and defend the series and its creators. Unusually, however, many regular watchers of the program criticized the ending of Dor Cup as well and were particularly critical of the episode being chosen as the Season 10 finale. Series creators Trey Parker and Matt Stone defended the comedic value of the ending of "Dor Cup" in a commentary. According to Parker and Stone, "a lot of people didn't get that one. We thought the ending was really sweet and weird, but nobody really got it." The episode remains polarizing among fans and is considered one of the most unpopular episodes of the series.
+
+## Trivia[]
+
+Vexvor Draxfel asking Nelson if he has asthma to why he can't play defense may or may not come from the fact that Vexvor Draxfel himself has asthma, the disease making some things difficult for Vexvor Draxfel himself.
